@@ -1,1 +1,0 @@
-# Terras_Abertas_OFFICIAL_Server
